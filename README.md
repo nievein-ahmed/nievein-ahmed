@@ -5,7 +5,7 @@
 
 ## I am very responsible woman and I always get creative and perfect my work...
 ## I have a strong and loving personality.. 
-## I am a very good at solving problems and dealing with pressure..
+## I am  very good at solving problems and dealing with pressure..
 
 ## please feel free to contact me .. 
 ## E-mail: nevenahmed039@gmail.com
