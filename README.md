@@ -1,11 +1,10 @@
 ### Hi there 👋
 
-- 🔭 *I’m currently studying on DCI*
-- 🌱 *I’m currently learning web development*
-- 👯 *I’m looking to collaborate on DCI*
-- 🤔 *I’m looking for help with my skills*
-- 💬 *Ask me about anything*
-- 📫 *How to reach me: nevenahmed039@gmail.com*
+## My name is Nievein 
+## I am currently study web-development at DCI 
 
+## I am very responsible woman and i always get creative and perfect my work 
+## I have a strong and loving personality 
+## I am a very good at solving problems and dealing with pressure..
 
 
